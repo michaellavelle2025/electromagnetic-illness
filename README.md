@@ -1,3 +1,4 @@
 # Electromagnetic Illness
 
 * [Electrical Sensitivity: Definition, Epidemiology and Management](https://www.gov.uk/government/publications/electrical-sensitivity-definition-epidemiology-and-management) from Public Health England (gov.uk)
+* [The Control of Electromagnetic Fields at Work Regulations](https://www.hse.gov.uk/radiation/nonionising/emf-regulations.htm) from UK Health and Safety Executive (gov.uk)
