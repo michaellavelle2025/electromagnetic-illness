@@ -18,3 +18,5 @@
 * [Narcolepsy](https://youtube.com/watch?v=d41BfD21b48) - BBC report
 
 * [Cluster Headaches](https://youtube.com/watch?v=OO5oDaG45kE) - BBC report
+
+* [Sudden Sensorineural Hearing Loss](https://www.enherts-tr.nhs.uk/wp-content/uploads/2022/01/Sudden-Sensorineural-Hearing-Loss-V1-12.2021-web.pdf) - from NHS
