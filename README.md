@@ -13,4 +13,6 @@
 
 ## Conditions with symptoms that overlap with those reported for Havana Syndrome
 
-* [Chronic Fatigue Syndrome](https://youtube.com/watch?v=xCPgewRUHyc) from UCLH 
+* [Chronic Fatigue Syndrome](https://youtube.com/watch?v=xCPgewRUHyc) from UCLH
+
+* [Narcolepsy](https://youtube.com/watch?v=d41BfD21b48) - BBC report
