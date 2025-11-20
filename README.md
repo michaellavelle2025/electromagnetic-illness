@@ -1,1 +1,1 @@
-# electromagnetic-illness
+# Electromagnetic Illness
