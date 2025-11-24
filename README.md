@@ -27,3 +27,9 @@
 
 "We got to install microwave ovens, custom kitchen deliveries
 We got to move these refrigerators, we got to move these color TVs"
+
+* [Lightsonic - Groove Armada](https://youtube.com/watch?v=FP-Wr2GHcKU)
+
+* [Superstylin' - Groove Armada](https://youtube.com/watch?v=_kE0pxRkMtQ)
+
+* [Invisible Light - Scissor Sisters](https://youtube.com/watch?v=_FvBAi6iAVM)
