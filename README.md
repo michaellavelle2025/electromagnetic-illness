@@ -20,3 +20,10 @@
 * [Cluster Headaches](https://youtube.com/watch?v=OO5oDaG45kE) - BBC report
 
 * [Sudden Sensorineural Hearing Loss](https://www.enherts-tr.nhs.uk/wp-content/uploads/2022/01/Sudden-Sensorineural-Hearing-Loss-V1-12.2021-web.pdf) - from NHS
+
+## Cultural references to electromagnetic fields/beams and potential sources that could be used as sonic or energy weaponry
+
+* [Dire Straits - Money For Nothing](https://youtube.com/watch?v=wTP2RUD_cL0)
+
+"We got to install microwave ovens, custom kitchen deliveries
+We got to move these refrigerators, we got to move these color TVs"
